@@ -3,7 +3,7 @@
 **CTP Energy Ontological Sciences Operating System™**  
 *A Conscious-Aware OS Framework for a Post-Materialist Civilization*
 
-also the *'CTP Energy Operating System'* or the *'CTP Extraterrestrial Operating System'*
+also the ***'CTP Energy Operating System'*** or the ***'CTP Extraterrestrial Operating System'***
 
 ---
 
