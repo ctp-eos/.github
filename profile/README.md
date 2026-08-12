@@ -1,4 +1,4 @@
-# 🔷 CTP-EOS™ Linux
+# 🔷 CTP-EOS™ Linux (The Disclosure Linux)
 
 **CTP Energy Ontological Sciences Operating System™**  
 *A Conscious-Aware OS Framework for a Post-Materialist Civilization*
